@@ -22,4 +22,4 @@ I have a background in the video games industry 🎮 but made the switch to web 
 
 ## Contact 💬
 
-I'm always open to new opportunities and connections 🤝!
+I'm always open to new opportunities and connections 🤝! Please use the links in my profile to get in touch with professional opportunities or queries.
